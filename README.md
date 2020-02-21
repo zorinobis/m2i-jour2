@@ -5,10 +5,4 @@ msqfd lk qsmlkjf mq lksm qlkm qlm lqk mqlmlq
 msqfd lk qsmlkjf mq lksm qlkm qlm lqk mqlmlq
 msqfd lk qsmlkjf mq lksm qlkm qlm lqk mqlmlq
 msqfd lk qsmlkjf mq lksm qlkm qlm lqk mqlmlq
-msqfd lk qsmlkjf mq lksm qlkm qlm lqk mqlmlq
-msqfd lk qsmlkjf mq lksm qlkm qlm lqk mqlmlq
-msqfd lk qsmlkjf mq lksm qlkm qlm lqk mqlmlq
-msqfd lk qsmlkjf mq lksm qlkm qlm lqk mqlmlq
-msqfd lk qsmlkjf mq lksm qlkm qlm lqk mqlmlq
-msqfd lk qsmlkjf mq lksm qlkm qlm lqk mqlmlq
-msqfd lk qsmlkjf mq lksm qlkm qlm lqk mqlmlq
+on fait des modifs
